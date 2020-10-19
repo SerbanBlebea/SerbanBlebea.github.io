@@ -1,7 +1,7 @@
 Serban Blebea
 -------------
 
-#### Business & Marketing Enthusiast
+#### Business & Marketing Enthusiast w/ technical background
 
 ![Serban profile
 picture](https://i.ibb.co/r5dJK1v/DSC-7247.jpg)
