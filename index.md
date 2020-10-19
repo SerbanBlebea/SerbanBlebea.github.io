@@ -1,10 +1,10 @@
-Serban Blebea {.cover-heading}
+Serban Blebea
 -------------
 
-#### Full Stack Software Engineer
+#### Business & Marketing Enthusiast
 
-![Cosmin Dumitrache profile
-picture](Dana%20Papacic%C4%83_files/dana.png)
+![Serban profile
+picture](serban.png)
 
 [**](mailto:danielapapacica@gmail.com)
 [**](https://www.linkedin.com/in/elena-daniela-papacic%C4%83-875a5315b/)
