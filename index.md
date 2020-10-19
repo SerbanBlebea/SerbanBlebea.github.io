@@ -4,9 +4,9 @@ Serban Blebea
 #### Business & Marketing Enthusiast
 
 ![Serban profile
-picture](serban.png)
+picture](https://i.ibb.co/r5dJK1v/DSC-7247.jpg)
 
-[**](mailto:danielapapacica@gmail.com)
-[**](https://www.linkedin.com/in/elena-daniela-papacic%C4%83-875a5315b/)
-[**](https://www.facebook.com/dana.papacica)
-[**](https://github.com/danielapapacica)
+[**](mailto:serbanblebea4@gmail.com)
+[**](https://www.linkedin.com/in/serban-blebea)
+[**](https://www.facebook.com/Sherby4)
+[**](https://github.com/serbanblebea)
